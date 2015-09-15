@@ -1,1 +1,1 @@
-Duodenum 12
+Duodenum
